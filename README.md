@@ -1,0 +1,2 @@
+# jojocold_persite_github_io
+personal_site_namecheap
